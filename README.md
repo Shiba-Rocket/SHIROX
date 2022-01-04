@@ -1,0 +1,2 @@
+# SHIROX
+Shiba Rocket token
